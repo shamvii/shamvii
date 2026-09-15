@@ -28,7 +28,7 @@ Also
 
 Let's connect
 
-📫 https://www.linkedin.com/in/shamvishukla/ · ✉️ shambhavishukla24@gmail.com
+📫 https://www.linkedin.com/in/shamvishukla/ · ✉️ shambhavishukla24@gmail.com . https://shamvi24.substack.com/
 
 <sub>Product-minded engineer. Systems thinker. Building with AI.</sub>
 <!--
